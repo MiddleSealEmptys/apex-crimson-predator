@@ -2,6 +2,8 @@
 <div align="center">
 
 <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=900&size=46&pause=650&color=E53935&center=true&vCenter=true&width=1100&height=135&lines=APEX+LEGENDS+HACK+2026;APEX+PREDATOR+EDITION;AIMBOT+%7C+GLOW+ESP+%7C+NO+RECOIL;BECOME+THE+PREDATOR." alt="Apex Legends Hack 2026" />
+<img width="1919" height="1079" alt="image" src="https://github.com/user-attachments/assets/88425de8-518a-43b4-aa23-08bcca451021" />
+<img width="1919" height="1079" alt="image" src="https://github.com/user-attachments/assets/397b52c9-290d-43d1-8f20-fba243b74125" />
 
 <br/>
 
